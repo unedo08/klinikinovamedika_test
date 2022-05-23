@@ -1,0 +1,1 @@
+# klinikinovamedika_test
